@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/M5Abed](https://github.com/M5Abed)
 
-- 📫 How to reach me **mohamed.a.abed@outlook.com**
+- 📫 How to reach me **abed@erth.dev**
 
 - 📄 Know about my experiences [https://shorturl.at/32eTU](https://shorturl.at/32eTU)
 
