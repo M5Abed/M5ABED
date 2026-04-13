@@ -13,7 +13,6 @@
 
 - 📫 How to reach me **abed@erth.dev**
 
-- 📄 Know about my experiences [https://shorturl.at/32eTU](https://shorturl.at/32eTU)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
